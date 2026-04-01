@@ -1,1 +1,0 @@
-# Hyrja ne Laborator 
